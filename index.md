@@ -13,3 +13,7 @@ Bruce Willis said
 > Do what you said you would do.
 > I love you.
 
+<img src=https://en.wikipedia.org/wiki/File:Bruce_Willis_by_Gage_Skidmore_3.jpg/>
+
+
+

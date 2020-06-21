@@ -7,3 +7,9 @@ Walter Bruce Willis (born March 19, 1955) is an American actor, producer, and si
 * is a singer
 * debut on Broadway
 * has a Golden Globe
+
+Bruce Willis said
+
+> Do what you said you would do.
+> I love you.
+
